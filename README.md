@@ -1,7 +1,7 @@
 <h1 align="center">MY NAME IS FL</h1>
 
 ###
-<div align="center" class="tenor-gif-embed" data-postid="5431198" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/girls-und-panzer-crying-katyusha-pravda-tears-sad-gif-5431198">Girls Und Panzer Crying GIF</a>from <a href="https://tenor.com/search/girls+und+panzer-gifs">Girls Und Panzer GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<a align="center" href="https://tenor.com/view/girls-und-panzer-crying-katyusha-pravda-tears-sad-gif-5431198">
 
 ###
 
