@@ -2,7 +2,7 @@
 
 ###
 
-<img src="https://tenor.com/de/view/girls-und-panzer-katuysha-girls-und-panzer-ガールズ%26パンツァー-russian-girl-sovietique-girl-gif-2004967427688324229"/>
+![girls-und-panzer-katuysha-girls-und-panzer](https://github.com/user-attachments/assets/cbb05888-1f2e-408f-8805-5fcfec44b920)
 
 ###
 
